@@ -1,2 +1,0 @@
-# informaciones
-practicas del dia
